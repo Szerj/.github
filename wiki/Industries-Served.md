@@ -6,7 +6,7 @@ Szerj Systems brings systems architecture and automation expertise to a diverse 
 
 ### Why SMBs Choose Us
 
-Small and medium-sized businesses face a unique challenge: they need enterprise-level efficiency but often lack enterprise budgets and resources. We specialize in bringing powerful automation and systems to SMBs at a scale that makes sense.
+Small and medium-sized businesses face a unique challenge: they need enterprise-level efficiency but often lack enterprise budgets and resources. We specialize in bringing powerful automation and systems to SMBs with solutions sized appropriately for your team, budget, and growth stage.
 
 ### Common Challenges We Solve
 
